@@ -1,0 +1,1021 @@
+# AI Builders Digest 今日热点快报
+
+*报告生成时间：2026年07月28日22时50分00秒*
+
+---
+
+## 一、国内时政
+
+### 国务院提出加强冷链物流、农村物流及大宗商品等短板领域建设
+
+来源：<code>map.mobile.gjfkl.cN/Article/852882.sHtML</code>
+
+### 中国海警公布的照片中出现金门岛，专家称其与2022年“军舰与宝岛同框照”有三点相似
+
+来源：<code>map.mobile.gjfkl.cN/Article/907077.sHtML</code>
+
+### 中国海警出台新规定，引发菲律宾方面的忧虑情绪
+
+来源：<code>map.mobile.gjfkl.cN/Article/5542.sHtML</code>
+
+### 神舟十七号航天员计划近日执行第二次出舱活动
+
+来源：<code>map.mobile.gjfkl.cN/Article/426249.sHtML</code>
+
+### 曹县汉服经济火热：电商增长显著、青年返乡增多、营商环境持续改善
+
+来源：<code>map.mobile.gjfkl.cN/Article/3897050.sHtML</code>
+
+### 美驻日大使声称美国需对中国展现强硬立场
+
+来源：<code>map.mobile.gjfkl.cN/Article/59905.sHtML</code>
+
+### 江西建材集团原纪委书记熊小华被开除党籍
+
+来源：<code>map.mobile.gjfkl.cN/Article/9134.sHtML</code>
+
+### 龙年首个股市交易日A股飘红，三大指数集体高开
+
+来源：<code>map.mobile.gjfkl.cN/Article/866304.sHtML</code>
+
+### 著名马克思主义哲学家、北大社会发展研究所原所长易杰雄逝世
+
+来源：<code>map.mobile.gjfkl.cN/Article/0123841.sHtML</code>
+
+### 中东部雨雪天气进入最强时段，南方多地气温将大幅下降
+
+来源：<code>map.mobile.gjfkl.cN/Article/7866.sHtML</code>
+
+### 新规要求基金经理不得随意跳槽及公开炫耀个人财富
+
+来源：<code>map.mobile.gjfkl.cN/Article/2182337.sHtML</code>
+
+### 台防务部门称解放军军机呈现“三面环绕台湾”态势
+
+来源：<code>map.mobile.gjfkl.cN/Article/6477668.sHtML</code>
+
+### 2023年前11个月全国实际使用外资金额达1.04万亿元
+
+来源：<code>map.mobile.gjfkl.cN/Article/8385742.sHtML</code>
+
+### 央行表示将加快推动《金融稳定法》和《反洗钱法》立法进程
+
+来源：<code>map.mobile.gjfkl.cN/Article/494412.sHtML</code>
+
+### 台媒报道诗人余光中夫人去世，享年92岁
+
+来源：<code>map.mobile.gjfkl.cN/Article/1100.sHtML</code>
+
+### 日媒称一日本男子在湖南高院被判刑，外交部回应此事
+
+来源：<code>map.mobile.gjfkl.cN/Article/48331.sHtML</code>
+
+### 中东部雨雪将进一步加强，南方湿冷天气或持续到3月初
+
+来源：<code>map.mobile.gjfkl.cN/Article/680752.sHtML</code>
+
+### 外交部宣布德国总理朔尔茨将访华，中德同意加强战略沟通
+
+来源：<code>map.mobile.gjfkl.cN/Article/655124.sHtML</code>
+
+### 儿科就诊高峰何时结束？专家发布最新研判
+
+来源：<code>map.mobile.gjfkl.cN/Article/8242.sHtML</code>
+
+### 广州房票可全市使用，允许转让但限一次
+
+来源：<code>map.mobile.gjfkl.cN/Article/211779.sHtML</code>
+
+### 本周末中央纪委再次通报反腐最新情况
+
+来源：<code>map.mobile.gjfkl.cN/Article/0090114.sHtML</code>
+
+### 2024年省级两会会期陆续确定，多数定在1月中下旬
+
+来源：<code>map.mobile.gjfkl.cN/Article/374034.sHtML</code>
+
+### 春运火车票销量已超6000万张，铁路部门将重点打击恶意抢票软件
+
+来源：<code>map.mobile.gjfkl.cN/Article/4053752.sHtML</code>
+
+### 历经八年争议，国民党约156亿新台币党产遭民进党当局全数没收
+
+来源：<code>map.mobile.gjfkl.cN/Article/1817157.sHtML</code>
+
+### 受雨雪冰冻影响，京沪高铁等部分线路将临时停运列车
+
+来源：<code>map.mobile.gjfkl.cN/Article/600320.sHtML</code>
+
+### 杭州主城区常住人口突破千万，成为全国第十个超大城市
+
+来源：<code>map.mobile.gjfkl.cN/Article/7628836.sHtML</code>
+
+### 王毅表示中俄关系开创了大国交往的新范式
+
+来源：<code>map.mobile.gjfkl.cN/Article/152160.sHtML</code>
+
+### 菲律宾海警船故意冲撞中方船只，专家指其行为趋近准军事
+
+来源：<code>map.mobile.gjfkl.cN/Article/8175206.sHtML</code>
+
+### 五一假期高速部分路段及收费站或出现车流拥堵
+
+来源：<code>map.mobile.gjfkl.cN/Article/78685.sHtML</code>
+
+### 南部战区海空兵力在南海常态巡航，保持全天候高度戒备
+
+来源：<code>map.mobile.gjfkl.cN/Article/846297.sHtML</code>
+
+### 2024年首场强寒潮来袭，多地迎来暴雪
+
+来源：<code>map.mobile.gjfkl.cN/Article/0153320.sHtML</code>
+
+### 中国在联合国大会严厉驳斥有关国家涉南海错误言论
+
+来源：<code>map.mobile.gjfkl.cN/Article/1331303.sHtML</code>
+
+### 湖南省政协原副主席易鹏飞因受贿及滥用职权一审获刑
+
+来源：<code>map.mobile.gjfkl.cN/Article/5752042.sHtML</code>
+
+### 美方宣布解除对中国公安部鉴定中心的制裁
+
+来源：<code>map.mobile.gjfkl.cN/Article/0984.sHtML</code>
+
+### 益佰制药因违规生产药品，公司及责任人被罚超820万元
+
+来源：<code>map.mobile.gjfkl.cN/Article/3035.sHtML</code>
+
+### 美加军舰穿越台湾海峡，东部战区作出回应
+
+来源：<code>map.mobile.gjfkl.cN/Article/14155.sHtML</code>
+
+### 齐家滨出任中央组织部副部长
+
+来源：<code>map.mobile.gjfkl.cN/Article/7014747.sHtML</code>
+
+### 孙兴慜被指挑衅中国球迷引发争议，两队主帅赛后均表态
+
+来源：<code>map.mobile.gjfkl.cN/Article/832491.sHtML</code>
+
+### 西藏自治区政府副主席王勇接受纪律审查和监察调查
+
+来源：<code>map.mobile.gjfkl.cN/Article/58812.sHtML</code>
+
+### 中央政法委秘书长在浙江调研时强调“加大反腐力度”，释放明确信号
+
+来源：<code>map.mobile.gjfkl.cN/Article/7338104.sHtML</code>
+
+### 66岁的左锁粉一审被判有期徒刑14年
+
+来源：<code>map.mobile.gjfkl.cN/Article/93666.sHtML</code>
+
+### 官方回应无偿献血人数下降及血液制品出口传言
+
+来源：<code>map.mobile.gjfkl.cN/Article/82097.sHtML</code>
+
+### 人社部明确2024年退休人员基本养老金上调3%
+
+来源：<code>map.mobile.gjfkl.cN/Article/0443.sHtML</code>
+
+### 中国驻英使馆批评英方制裁5家中企，称此举“加剧矛盾
+
+来源：<code>map.mobile.gjfkl.cN/Article/4360259.sHtML</code>
+
+### 调查显示新能源车消费趋势变化：品牌重要性下降，性价比升至首位
+
+来源：<code>map.mobile.gjfkl.cN/Article/8330401.sHtML</code>
+
+### 全国超20省份遭遇严寒，冷冻地图发布，多地寒冷如冰箱
+
+来源：<code>map.mobile.gjfkl.cN/Article/773308.sHtML</code>
+
+### MCN机构就“点读机女孩”旧视频事件发布致歉声明
+
+来源：<code>map.mobile.gjfkl.cN/Article/9899382.sHtML</code>
+
+### 何立峰在外事会见中三个互动细节引发关注
+
+来源：<code>map.mobile.gjfkl.cN/Article/643893.sHtML</code>
+
+### 中国福彩中心回应多地自助彩票机暂停使用
+
+来源：<code>map.mobile.gjfkl.cN/Article/8372317.sHtML</code>
+
+### 神十八“80后”航天员乘组首次亮相，个人简历同步公布
+
+来源：<code>map.mobile.gjfkl.cN/Article/965440.sHtML</code>
+
+## 二、民生社会
+
+### 贵州省政协副主席陈晏涉嫌严重违纪违法，目前正接受纪律审查和监察调查。
+
+来源：<code>map.mobile.gjfkl.cN/Article/096344.sHtML</code>
+
+### 银川烧烤店致31死爆炸事故调查结果出炉：气瓶检测存在造假，监管部门被认定失职。
+
+来源：<code>map.mobile.gjfkl.cN/Article/2285352.sHtML</code>
+
+### 曾数次赴美参与经贸磋商的官员，现已不再担任中央机构职务。
+
+来源：<code>map.mobile.gjfkl.cN/Article/6526.sHtML</code>
+
+### 人民日报评国足：平局令提前出线希望破灭，队伍表现难言满意。
+
+来源：<code>map.mobile.gjfkl.cN/Article/15411.sHtML</code>
+
+### 内蒙古乌兰察布高速路面发生坍塌，4车坠落，事故导致2人死亡4人受伤。
+
+来源：<code>map.mobile.gjfkl.cN/Article/05223.sHtML</code>
+
+### 王思聪赴山东参加工作，外界认为这代表其职业方向出现新变化。
+
+来源：<code>map.mobile.gjfkl.cN/Article/4558.sHtML</code>
+
+### 各省GDP排名出现变动，六个省份位次更迭，四川、上海和辽宁排名上升。
+
+来源：<code>map.mobile.gjfkl.cN/Article/2047122.sHtML</code>
+
+### 工人日报发文探讨：制造业如何提升对年轻人才的吸引力？
+
+来源：<code>map.mobile.gjfkl.cN/Article/7622.sHtML</code>
+
+### 多项数据表明，2023年北京经济增长质量较高，含金量凸显。
+
+来源：<code>map.mobile.gjfkl.cN/Article/29376.sHtML</code>
+
+### 曾借"纸面服刑"逃脱惩处的杀人犯，36年后再次作案，终审被判死刑。
+
+来源：<code>map.mobile.gjfkl.cN/Article/2965.sHtML</code>
+
+### 两部委联合通知：地级及以上城市须在3月15日前建立房地产项目"白名单"制度。
+
+来源：<code>map.mobile.gjfkl.cN/Article/1212710.sHtML</code>
+
+### 国务院副总理何立峰与美国财长耶伦举行面对面会谈。
+
+来源：<code>map.mobile.gjfkl.cN/Article/9419944.sHtML</code>
+
+### 春运期间河南全省预计发送旅客超6.4亿人次，自驾出行占比接近九成。
+
+来源：<code>map.mobile.gjfkl.cN/Article/1501699.sHtML</code>
+
+### 中央和国家机关多个重要部门近期迎来一批新负责人。
+
+来源：<code>map.mobile.gjfkl.cN/Article/71049.sHtML</code>
+
+### 250名涉跨境裸聊敲诈和电信网络诈骗嫌疑人被移交中方。
+
+来源：<code>map.mobile.gjfkl.cN/Article/7466.sHtML</code>
+
+### 国家空间天气监测预警中心发布地磁暴最高级别红色预警。
+
+来源：<code>map.mobile.gjfkl.cN/Article/02277.sHtML</code>
+
+### 某知名企业发布紧急公告：董事长正接受相关部门立案调查。
+
+来源：<code>map.mobile.gjfkl.cN/Article/34302.sHtML</code>
+
+### 国足0比3负于韩国，比赛中虽有亮点，但赢下关键战才是出线关键。
+
+来源：<code>map.mobile.gjfkl.cN/Article/2652.sHtML</code>
+
+### 国际金价持续走高，市场预期有望突破3000美元，港股黄金板块个股普涨。
+
+来源：<code>map.mobile.gjfkl.cN/Article/7465.sHtML</code>
+
+### 菲律宾防长否认中菲曾就南海达成协议，被指背信弃义。
+
+来源：<code>map.mobile.gjfkl.cN/Article/095275.sHtML</code>
+
+### 台湾资深政界人士王世坚时隔16年再返立法机构，将与韩国瑜正面交锋。
+
+来源：<code>map.mobile.gjfkl.cN/Article/23873.sHtML</code>
+
+### 月薪两万港元，我决定赴港从事空乘工作。
+
+来源：<code>map.mobile.gjfkl.cN/Article/994327.sHtML</code>
+
+### 神舟十六号计划明日返回，返航前将首次以地球为背景拍摄空间站全貌。
+
+来源：<code>map.mobile.gjfkl.cN/Article/33386.sHtML</code>
+
+### 中国民营火箭公司在晨昏轨道发射任务中取得首次圆满成功。
+
+来源：<code>map.mobile.gjfkl.cN/Article/2716.sHtML</code>
+
+### 茅台深夜宣布提价20%，公司已感受到市场压力，涨价早已势在必行。
+
+来源：<code>map.mobile.gjfkl.cN/Article/9854481.sHtML</code>
+
+### 龙年开局港股连涨三日，市场再度显现久违的牛市氛围。
+
+来源：<code>map.mobile.gjfkl.cN/Article/9771591.sHtML</code>
+
+### 中俄在建交75周年之际，发布深化新时代全面战略协作伙伴关系联合声明。
+
+来源：<code>map.mobile.gjfkl.cN/Article/6975235.sHtML</code>
+
+### 中方是否已承认阿富汗塔利班政权？外交部回应外界关切。
+
+来源：<code>map.mobile.gjfkl.cN/Article/49367.sHtML</code>
+
+### 中央气象台发布三项预警，多省将遭遇大风、寒潮和冻雨天气。
+
+来源：<code>map.mobile.gjfkl.cN/Article/93167.sHtML</code>
+
+### 刘俊峰履新国家国际发展合作署副署长。
+
+来源：<code>map.mobile.gjfkl.cN/Article/6351.sHtML</code>
+
+### 医药领域反腐持续发力，48天内有近30名卫健官员和医院院长被查。
+
+来源：<code>map.mobile.gjfkl.cN/Article/805403.sHtML</code>
+
+### 两家总资产均超万亿的央企同日宣布高层人事调整。
+
+来源：<code>map.mobile.gjfkl.cN/Article/0386.sHtML</code>
+
+### 人民币连续四年保持深港间第一大跨境结算货币地位。
+
+来源：<code>map.mobile.gjfkl.cN/Article/5657378.sHtML</code>
+
+### 海军、海警与空军罕见联合行动，开展海上执法与军事演练。
+
+来源：<code>map.mobile.gjfkl.cN/Article/047522.sHtML</code>
+
+### 国防部称东部战区组织联合战备警巡，旨在提升实战化训练水平。
+
+来源：<code>map.mobile.gjfkl.cN/Article/894295.sHtML</code>
+
+### 因"个人原因"辞职不足一个月，他便主动向纪检机关投案。
+
+来源：<code>map.mobile.gjfkl.cN/Article/6386879.sHtML</code>
+
+### 圆通速递副总裁因利用亲属账户短线交易，被立案调查。
+
+来源：<code>map.mobile.gjfkl.cN/Article/5759143.sHtML</code>
+
+### 暴雪影响春运高峰，机场临时关闭跑道，多地列车停运。
+
+来源：<code>map.mobile.gjfkl.cN/Article/2349.sHtML</code>
+
+### 西陇科学澄清未生产光刻胶，昨日股价下跌7.75%。
+
+来源：<code>map.mobile.gjfkl.cN/Article/8088964.sHtML</code>
+
+### 中国年轻球员张奥林决定加入日本国籍，目标未来代表日本出战世界杯。
+
+来源：<code>map.mobile.gjfkl.cN/Article/43401.sHtML</code>
+
+### 国内第二艘国产大型邮轮已正式开工建造。
+
+来源：<code>map.mobile.gjfkl.cN/Article/5805.sHtML</code>
+
+### 易会满强调严防市场过度杠杆，对违规行为坚持"零容忍"。
+
+来源：<code>map.mobile.gjfkl.cN/Article/7778682.sHtML</code>
+
+### 美军2月内累计派出60架次侦察机赴南海执行飞行任务。
+
+来源：<code>map.mobile.gjfkl.cN/Article/79515.sHtML</code>
+
+### 西北区域交通枢纽能否实现整体联动发展？
+
+来源：<code>map.mobile.gjfkl.cN/Article/6519742.sHtML</code>
+
+### 山西朔州一家酿酒工坊发生爆炸，造成1死1伤。
+
+来源：<code>map.mobile.gjfkl.cN/Article/6713746.sHtML</code>
+
+### 心理疾病引发的身体症状，令大量患者辗转多个科室求医。
+
+来源：<code>map.mobile.gjfkl.cN/Article/58085.sHtML</code>
+
+### 国防部表示，台独挑衅越频繁，和平统一前景越暗淡。
+
+来源：<code>map.mobile.gjfkl.cN/Article/9923325.sHtML</code>
+
+### 针对澳方炒作中澳军舰东海遭遇一事，国防部发言人吴谦作出回应。
+
+来源：<code>map.mobile.gjfkl.cN/Article/535353.sHtML</code>
+
+### 由方舱改造的保障性租赁住房已入住，月租仅1200元，可拎包入住。
+
+来源：<code>map.mobile.gjfkl.cN/Article/4116.sHtML</code>
+
+### 陕西省政协原主席韩勇涉嫌违法犯罪，已被执行逮捕。
+
+来源：<code>map.mobile.gjfkl.cN/Article/76566.sHtML</code>
+
+## 三、科技产业
+
+### 中国国民党副主席夏立言计划于26日起率团前往大陆进行访问。
+
+来源：<code>map.mobile.gjfkl.cN/Article/06267.sHtML</code>
+
+### 证监会作出最新部署，上交所、深交所及北交所同步推出多项重要举措。
+
+来源：<code>map.mobile.gjfkl.cN/Article/3445166.sHtML</code>
+
+### 梅西当前正面临一场对其个人信誉构成重大考验的关键赛事。
+
+来源：<code>map.mobile.gjfkl.cN/Article/5390901.sHtML</code>
+
+### 内蒙古中西部遭遇降雪天气，多条高速公路因此实施封闭管制措施。
+
+来源：<code>map.mobile.gjfkl.cN/Article/6692.sHtML</code>
+
+### 县委原书记主动投案4个多月后，该县原县长也主动向组织交代自身问题。
+
+来源：<code>map.mobile.gjfkl.cN/Article/33013.sHtML</code>
+
+### 中央组织部任命王军担任东方电气集团副总经理一职。
+
+来源：<code>map.mobile.gjfkl.cN/Article/032929.sHtML</code>
+
+### 刘旸被免去山西省副省长职务，同时其省人大代表资格也被依法终止。
+
+来源：<code>map.mobile.gjfkl.cN/Article/95207.sHtML</code>
+
+### 周大福位于深圳的工厂已全面停止生产与运营活动。
+
+来源：<code>map.mobile.gjfkl.cN/Article/68009.sHtML</code>
+
+### 海军一艘万吨级驱逐舰赴远海区域，进行单舰实战化训练考核。
+
+来源：<code>map.mobile.gjfkl.cN/Article/2113.sHtML</code>
+
+### 今年清明祭祖期间，马英九特别提及自己此前曾到访湖南的经历。
+
+来源：<code>map.mobile.gjfkl.cN/Article/1618.sHtML</code>
+
+### 11月LPR报价出炉：1年期和5年期利率均维持不变
+
+来源：<code>map.mobile.gjfkl.cN/Article/89898.sHtML</code>
+
+### 特斯拉中国推出Model 3和Model Y“0首付”活动
+
+来源：<code>map.mobile.gjfkl.cN/Article/5734.sHtML</code>
+
+### 短期内宁夏境内发生5.0级以上地震的可能性不大
+
+来源：<code>map.mobile.gjfkl.cN/Article/1153707.sHtML</code>
+
+### 北京一家村镇银行宣布解散，今年全国已有多家村镇行退出市场
+
+来源：<code>map.mobile.gjfkl.cN/Article/236553.sHtML</code>
+
+### 交通银行回应App无法转账：网络通讯故障 目前已恢复
+
+来源：<code>map.mobile.gjfkl.cN/Article/311443.sHtML</code>
+
+### 习近平同俄罗斯总统普京共同出席“中俄文化年”开幕式暨庆祝中俄建交75周年专场音乐会并致辞
+
+来源：<code>map.mobile.gjfkl.cN/Article/0236.sHtML</code>
+
+### 浙江省2024年高考外语和选考信息确认将于4月8日启动
+
+来源：<code>map.mobile.gjfkl.cN/Article/82805.sHtML</code>
+
+### 日月谭天｜龙年春晚，岛内民众盛赞：文化盛宴！
+
+来源：<code>map.mobile.gjfkl.cN/Article/4615715.sHtML</code>
+
+### 西安外国语大学原校长王军哲被查，卸任后校长空缺已3年
+
+来源：<code>map.mobile.gjfkl.cN/Article/0136368.sHtML</code>
+
+### 会议间隙，省委书记等观看这部电影
+
+来源：<code>map.mobile.gjfkl.cN/Article/9647.sHtML</code>
+
+### 深圳市分区发布暴雨橙色预警 全市进入暴雨防御状态
+
+来源：<code>map.mobile.gjfkl.cN/Article/123423.sHtML</code>
+
+### 高校陆续迎来寒假：有的可达70天 元宵前后将集中开学
+
+来源：<code>map.mobile.gjfkl.cN/Article/2359.sHtML</code>
+
+### 青海省委书记：全省的力量都在想方设法救援老百姓！
+
+来源：<code>map.mobile.gjfkl.cN/Article/7136584.sHtML</code>
+
+### 通车30年，全国最繁忙的高速公路之一，决定停止收费！
+
+来源：<code>map.mobile.gjfkl.cN/Article/63441.sHtML</code>
+
+### 来了！2024年高考语文作文试题
+
+来源：<code>map.mobile.gjfkl.cN/Article/43957.sHtML</code>
+
+### 北大回应：不要相信一个诈骗嫌犯的话！
+
+来源：<code>map.mobile.gjfkl.cN/Article/841638.sHtML</code>
+
+### 年轻选票如何争取？国民党在努力
+
+来源：<code>map.mobile.gjfkl.cN/Article/281993.sHtML</code>
+
+### 重庆能办泼水节吗？市文旅委：不宜复制举办
+
+来源：<code>map.mobile.gjfkl.cN/Article/1038851.sHtML</code>
+
+### 胡明朗告别重庆公安局长岗位，已进京履新任职。
+
+来源：<code>map.mobile.gjfkl.cN/Article/1102183.sHtML</code>
+
+### 拜登声称不会对中国电动汽车补贴坐视不管，外交部回应将坚决维护自身权益。
+
+来源：<code>map.mobile.gjfkl.cN/Article/2234551.sHtML</code>
+
+### 西藏政协前副主席姜杰被提起公诉，受贿案步入司法审理阶段。
+
+来源：<code>map.mobile.gjfkl.cN/Article/070357.sHtML</code>
+
+### 免职三个月后悬念落定，该官员最终被正式立案查处。
+
+来源：<code>map.mobile.gjfkl.cN/Article/0804.sHtML</code>
+
+### 中央候补委员张政正式调任至文化和旅游部，到岗就职。
+
+来源：<code>map.mobile.gjfkl.cN/Article/90113.sHtML</code>
+
+### 知名导演车径行因病逝世，享年51岁，影视界失去一位杰出人才。
+
+来源：<code>map.mobile.gjfkl.cN/Article/930232.sHtML</code>
+
+### 莫迪表态希望加强与台湾关系，外交部对此作出严正回应。
+
+来源：<code>map.mobile.gjfkl.cN/Article/3151567.sHtML</code>
+
+### 微盘股暴跌似重演二月量化危机，百亿私募称本轮情况与以往不同。
+
+来源：<code>map.mobile.gjfkl.cN/Article/1590118.sHtML</code>
+
+### 把握中美关系发展方向，为亚太与全球繁荣注入更多积极力量。
+
+来源：<code>map.mobile.gjfkl.cN/Article/6580.sHtML</code>
+
+### 北京倡议企事业单位错峰上下班和弹性工作，公布七条应对措施。
+
+来源：<code>map.mobile.gjfkl.cN/Article/870447.sHtML</code>
+
+### 马来西亚对华游客实行免签入境，中方表示欢迎这一举措。
+
+来源：<code>map.mobile.gjfkl.cN/Article/3618958.sHtML</code>
+
+### 钟南山解释肺结节检出率升高原因，并给出发现结节后的处理建议。
+
+来源：<code>map.mobile.gjfkl.cN/Article/6951823.sHtML</code>
+
+### 世贸组织就中澳葡萄酒争端达成双方均可接受的和解协议。
+
+来源：<code>map.mobile.gjfkl.cN/Article/067328.sHtML</code>
+
+### 一个月内，海关系统三名厅级官员相继被查落马。
+
+来源：<code>map.mobile.gjfkl.cN/Article/5657185.sHtML</code>
+
+### 刘建超在美国与国务卿布林肯会面，双方举行会谈。
+
+来源：<code>map.mobile.gjfkl.cN/Article/5268.sHtML</code>
+
+### 自4月1日起多个城市取消房贷利率下限，南昌青岛九江赣州均已实施。
+
+来源：<code>map.mobile.gjfkl.cN/Article/4278.sHtML</code>
+
+### 市民反映问题后，市长连夜赶赴现场进行调研和处置。
+
+来源：<code>map.mobile.gjfkl.cN/Article/434073.sHtML</code>
+
+### 环球时报评论：中国的反倾销调查让谁感到不安？
+
+来源：<code>map.mobile.gjfkl.cN/Article/22775.sHtML</code>
+
+### 央企负责人年度薪酬数据由国资委对外发布
+
+来源：<code>map.mobile.gjfkl.cN/Article/78632.sHtML</code>
+
+### 京沪与京广高铁部分列车将实行限速措施
+
+来源：<code>map.mobile.gjfkl.cN/Article/90876.sHtML</code>
+
+### 多省领导率企业高管赴京参加重要活动
+
+来源：<code>map.mobile.gjfkl.cN/Article/84828.sHtML</code>
+
+### 多地开启新房收购用于保障房，业内预估交付进度有望提速
+
+来源：<code>map.mobile.gjfkl.cN/Article/175363.sHtML</code>
+
+## 四、国际热点
+
+### 王毅会晤沙特与伊朗联合代表团
+
+来源：<code>map.mobile.gjfkl.cN/Article/03138.sHtML</code>
+
+### 外交部回应有关王毅是否与拜登会面的提问
+
+来源：<code>map.mobile.gjfkl.cN/Article/833098.sHtML</code>
+
+### 牛弹琴称一则简短消息引发良好社会反响
+
+来源：<code>map.mobile.gjfkl.cN/Article/4052.sHtML</code>
+
+### 阿里内部平台澄清马云并未减持公司股份
+
+来源：<code>map.mobile.gjfkl.cN/Article/8313.sHtML</code>
+
+### 南方电网纪检组长龙飞接受纪律审查和监察调查
+
+来源：<code>map.mobile.gjfkl.cN/Article/253760.sHtML</code>
+
+### 中国足协决定水庆霞不再担任女足国家队主教练
+
+来源：<code>map.mobile.gjfkl.cN/Article/0658332.sHtML</code>
+
+### 中央气象台首次发布冰冻橙色预警，南方冻雨或持续至2月4日
+
+来源：<code>map.mobile.gjfkl.cN/Article/7578.sHtML</code>
+
+### 贵州省政协原副主席陈晏被查，上月仍在公开活动
+
+来源：<code>map.mobile.gjfkl.cN/Article/8127793.sHtML</code>
+
+### 李铁案全程时间线：一张图看懂案件进展
+
+来源：<code>map.mobile.gjfkl.cN/Article/7083.sHtML</code>
+
+### 有专家建议向全民发放千元现金以刺激消费
+
+来源：<code>map.mobile.gjfkl.cN/Article/4022.sHtML</code>
+
+### 何立峰部署重要改革任务，释放新政策信号
+
+来源：<code>map.mobile.gjfkl.cN/Article/182360.sHtML</code>
+
+### 证监会强调严惩违法违规，让违规者付出代价
+
+来源：<code>map.mobile.gjfkl.cN/Article/9437.sHtML</code>
+
+### 孙颖莎王艺迪均告负，国乒女队遭遇罕见失利
+
+来源：<code>map.mobile.gjfkl.cN/Article/7289.sHtML</code>
+
+### 湖南省委书记暗访洞庭湖博物馆，7.8亿投资长期闲置
+
+来源：<code>map.mobile.gjfkl.cN/Article/359952.sHtML</code>
+
+### 儿科门诊候诊号已超2028位，专家称流感高峰将至
+
+来源：<code>map.mobile.gjfkl.cN/Article/429566.sHtML</code>
+
+### 王毅与沙特外交大臣费萨尔通电话
+
+来源：<code>map.mobile.gjfkl.cN/Article/6871508.sHtML</code>
+
+### 陈吉宁、袁家军、韩俊、王宁等分别推进相关工作
+
+来源：<code>map.mobile.gjfkl.cN/Article/18300.sHtML</code>
+
+### 河南遭10级强风，大树被拔起，大片麦田倒伏
+
+来源：<code>map.mobile.gjfkl.cN/Article/8723.sHtML</code>
+
+### 2024年2月内地电影总票房突破10亿元
+
+来源：<code>map.mobile.gjfkl.cN/Article/91414.sHtML</code>
+
+### 外交部表示法塔赫与哈马斯在京对话取得积极成果
+
+来源：<code>map.mobile.gjfkl.cN/Article/5618.sHtML</code>
+
+### 北京将今年GDP增速目标设定在5%左右
+
+来源：<code>map.mobile.gjfkl.cN/Article/8499897.sHtML</code>
+
+### 最新FIFA排名：国足亚洲第11、世界第79
+
+来源：<code>map.mobile.gjfkl.cN/Article/991435.sHtML</code>
+
+### 赵少康称国民党从未“亲共”，国台办回应
+
+来源：<code>map.mobile.gjfkl.cN/Article/0069448.sHtML</code>
+
+### 广东宣布广州深圳将放宽小客车购车指标申请条件
+
+来源：<code>map.mobile.gjfkl.cN/Article/4393.sHtML</code>
+
+### 江西本月发生4起雷击事故，致3死3伤
+
+来源：<code>map.mobile.gjfkl.cN/Article/41584.sHtML</code>
+
+### 李强在新疆调研期间释放两项关键政策信号
+
+来源：<code>map.mobile.gjfkl.cN/Article/5238087.sHtML</code>
+
+### 高温红色预警持续，河北部分地区最高温或超40℃
+
+来源：<code>map.mobile.gjfkl.cN/Article/8387.sHtML</code>
+
+### 李强将出席二十国集团领导人视频峰会
+
+来源：<code>map.mobile.gjfkl.cN/Article/4171.sHtML</code>
+
+### 一季度餐饮业对消费增长贡献明显，中端餐饮承压
+
+来源：<code>map.mobile.gjfkl.cN/Article/59806.sHtML</code>
+
+### 湖北大悟县百余村民被冒名注册个体户，当地已启动调查
+
+来源：<code>map.mobile.gjfkl.cN/Article/0870.sHtML</code>
+
+### 上海航运交易所数据显示，上海至欧洲航线运价涨超300%
+
+来源：<code>map.mobile.gjfkl.cN/Article/31615.sHtML</code>
+
+### 政治局会议部署应对经济复苏中多重挑战
+
+来源：<code>map.mobile.gjfkl.cN/Article/4751.sHtML</code>
+
+### 李克强同志逝世
+
+来源：<code>map.mobile.gjfkl.cN/Article/9481.sHtML</code>
+
+### 阔别45年，六位姐弟重返老宅门槛前合影
+
+来源：<code>map.mobile.gjfkl.cN/Article/400896.sHtML</code>
+
+### 中央财政拨付64.4亿元支持2024年汽车报废更新补贴
+
+来源：<code>map.mobile.gjfkl.cN/Article/100852.sHtML</code>
+
+### 国家安全部部长陈一新启动首次为期十天的海外出访，释放重要信号
+
+来源：<code>map.mobile.gjfkl.cN/Article/19797.sHtML</code>
+
+### 国台办迎来首任女副主任，高层人事新布局引关注
+
+来源：<code>map.mobile.gjfkl.cN/Article/7873.sHtML</code>
+
+### 多地“520”婚姻登记量同比上升，婚恋观回暖？
+
+来源：<code>map.mobile.gjfkl.cN/Article/7257.sHtML</code>
+
+### 台积电董事长表示将工厂整体迁出台湾不现实
+
+来源：<code>map.mobile.gjfkl.cN/Article/3455.sHtML</code>
+
+### 多部委联合工作组拟出台房地产调控重大新举措
+
+来源：<code>map.mobile.gjfkl.cN/Article/082095.sHtML</code>
+
+### 学者指出农民弃保背后结构性矛盾比经济压力更值得警惕
+
+来源：<code>map.mobile.gjfkl.cN/Article/55102.sHtML</code>
+
+### 税务总局透露全国统一大市场建设正提速推进
+
+来源：<code>map.mobile.gjfkl.cN/Article/62972.sHtML</code>
+
+### 购买林俊杰演唱会票却收到林子祥场次，大麦网回应换票事件
+
+来源：<code>map.mobile.gjfkl.cN/Article/07302.sHtML</code>
+
+### 省委书记暗访途中临时通知相关责任人到场
+
+来源：<code>map.mobile.gjfkl.cN/Article/7888453.sHtML</code>
+
+### 甘肃夏河山火已被彻底扑灭，无明火和烟点
+
+来源：<code>map.mobile.gjfkl.cN/Article/4556.sHtML</code>
+
+### 4月贷款市场报价利率公布：1年期和5年期均保持不变
+
+来源：<code>map.mobile.gjfkl.cN/Article/5899.sHtML</code>
+
+### AI手机概念股遭热炒，多家A股公司紧急澄清
+
+来源：<code>map.mobile.gjfkl.cN/Article/81625.sHtML</code>
+
+### 国防部回应中国军力排名全球第三
+
+来源：<code>map.mobile.gjfkl.cN/Article/16861.sHtML</code>
+
+### 台湾彰化籍人士江尔雄出任福建省副省长
+
+来源：<code>map.mobile.gjfkl.cN/Article/00410.sHtML</code>
+
+### 港媒称香港拟下调部分住宅印花税并上调烟草税
+
+来源：<code>map.mobile.gjfkl.cN/Article/1739505.sHtML</code>
+
+## 五、文体娱乐
+
+### 全国人大代表递交提案，呼吁将抑郁症治疗费用纳入国家医保报销范围
+
+来源：<code>map.mobile.gjfkl.cN/Article/4363351.sHtML</code>
+
+### 10月各地CPI数据出炉：20省环比下降，贵州河南山西连续7个月同比走低
+
+来源：<code>map.mobile.gjfkl.cN/Article/953450.sHtML</code>
+
+### 江西发布地质灾害与气象联合预警，部分区域风险等级调高
+
+来源：<code>map.mobile.gjfkl.cN/Article/021573.sHtML</code>
+
+### 公安部表态将严厉整治网红大V造谣传谣等网络乱象
+
+来源：<code>map.mobile.gjfkl.cN/Article/38962.sHtML</code>
+
+### 北京仍处新冠流行期，流感活动水平已明显回落
+
+来源：<code>map.mobile.gjfkl.cN/Article/80269.sHtML</code>
+
+### 因强对流天气停运的江西境内铁路线正逐步恢复通车
+
+来源：<code>map.mobile.gjfkl.cN/Article/43427.sHtML</code>
+
+### 商务部副部长透露，正研究下调新能源车保费费率方案
+
+来源：<code>map.mobile.gjfkl.cN/Article/588642.sHtML</code>
+
+### 2023年全国公安机关破获电信网络诈骗案件43.7万起
+
+来源：<code>map.mobile.gjfkl.cN/Article/5789.sHtML</code>
+
+### 全国少工委就红领巾规范佩戴方式发布正式说明
+
+来源：<code>map.mobile.gjfkl.cN/Article/25534.sHtML</code>
+
+### 西湖水面出现结冰：全球变暖背景下为何寒潮仍如此强劲
+
+来源：<code>map.mobile.gjfkl.cN/Article/0720731.sHtML</code>
+
+### 全球该领域近九成订单目前由中国企业包揽
+
+来源：<code>map.mobile.gjfkl.cN/Article/5432676.sHtML</code>
+
+### 台军自造潜艇举办出厂仪式，计划近期展开下水作业
+
+来源：<code>map.mobile.gjfkl.cN/Article/9942.sHtML</code>
+
+### 应急管理部部署全面排查整治各类消防安全风险隐患
+
+来源：<code>map.mobile.gjfkl.cN/Article/729457.sHtML</code>
+
+### 山东青岛市政协原副主席杨锡祥涉嫌违纪违法被立案审查
+
+来源：<code>map.mobile.gjfkl.cN/Article/2133462.sHtML</code>
+
+### 2023年中国职业教育发展质量究竟处于什么水平
+
+来源：<code>map.mobile.gjfkl.cN/Article/58605.sHtML</code>
+
+### 沈阳一居民楼疑因液化气罐爆炸，致1死3伤
+
+来源：<code>map.mobile.gjfkl.cN/Article/409103.sHtML</code>
+
+### 最高法新规要求离婚案件须充分保障未成年子女权益
+
+来源：<code>map.mobile.gjfkl.cN/Article/8293384.sHtML</code>
+
+### 神十八航天员李广苏：对航天员而言只有满分，没有合格线
+
+来源：<code>map.mobile.gjfkl.cN/Article/9555713.sHtML</code>
+
+### 中美两国领导人将就双边关系战略全局及方向性问题进行深入沟通
+
+来源：<code>map.mobile.gjfkl.cN/Article/8432.sHtML</code>
+
+### 全国将针对三类高风险消防场所开展专项整治，汲取江西新余和河南南阳火灾教训
+
+来源：<code>map.mobile.gjfkl.cN/Article/1547.sHtML</code>
+
+### 张文宏就今冬呼吸道感染频发原因作出解读
+
+来源：<code>map.mobile.gjfkl.cN/Article/27383.sHtML</code>
+
+### GDP万亿城市再添新成员，全国总数升至26座
+
+来源：<code>map.mobile.gjfkl.cN/Article/17391.sHtML</code>
+
+### 交通运输部发布自动驾驶汽车运输安全管理试行办法
+
+来源：<code>map.mobile.gjfkl.cN/Article/6454982.sHtML</code>
+
+### 恒大创全球财务造假纪录，5600亿元资金操作手法引关注
+
+来源：<code>map.mobile.gjfkl.cN/Article/1613113.sHtML</code>
+
+### 官方就四条高铁票价调整依据及考量作出说明
+
+来源：<code>map.mobile.gjfkl.cN/Article/74834.sHtML</code>
+
+### 四川青川县发生3.1级地震，震源深度10公里
+
+来源：<code>map.mobile.gjfkl.cN/Article/844480.sHtML</code>
+
+### 刘国中南行推动改革工作，以适应新形势发展需要
+
+来源：<code>map.mobile.gjfkl.cN/Article/61581.sHtML</code>
+
+### 多地网友建议本地文旅行业学习哈尔滨模式，官方陆续回应
+
+来源：<code>map.mobile.gjfkl.cN/Article/026672.sHtML</code>
+
+### 我国成功发射极光星座双星及另外三颗卫星
+
+来源：<code>map.mobile.gjfkl.cN/Article/5210.sHtML</code>
+
+### 11月中国经济呈现回暖迹象，三大产业指标均有改善
+
+来源：<code>map.mobile.gjfkl.cN/Article/7536090.sHtML</code>
+
+### 国家发改委称将出台一揽子稳预期、促增长、保就业政策
+
+来源：<code>map.mobile.gjfkl.cN/Article/67969.sHtML</code>
+
+### 春节前国内油价或再度上调，1月31日为调价窗口
+
+来源：<code>map.mobile.gjfkl.cN/Article/30541.sHtML</code>
+
+### 龙年首个交易日港股低开高走，后市走势依赖一季度经济数据
+
+来源：<code>map.mobile.gjfkl.cN/Article/4392160.sHtML</code>
+
+### 35岁的郑若琰获任新职务
+
+来源：<code>map.mobile.gjfkl.cN/Article/063562.sHtML</code>
+
+### 马宁将主哨亚洲杯决赛，创中国裁判历史性突破
+
+来源：<code>map.mobile.gjfkl.cN/Article/9053.sHtML</code>
+
+### 专家就肺炎支原体感染常见疑问作出详细解答
+
+来源：<code>map.mobile.gjfkl.cN/Article/75975.sHtML</code>
+
+### 证监会新规密集出台，同日四家企业撤回IPO申请
+
+来源：<code>map.mobile.gjfkl.cN/Article/467940.sHtML</code>
+
+### 八家央企迎来外部董事新一轮人事调整
+
+来源：<code>map.mobile.gjfkl.cN/Article/713386.sHtML</code>
+
+### 中核环保原董事长吴秀江被立案审查
+
+来源：<code>map.mobile.gjfkl.cN/Article/19569.sHtML</code>
+
+### 年内成品油调价或首次下调，降幅逼近红线
+
+来源：<code>map.mobile.gjfkl.cN/Article/13669.sHtML</code>
+
+### 最高检严打养老金诈骗及虚假诉讼链条
+
+来源：<code>map.mobile.gjfkl.cN/Article/25282.sHtML</code>
+
+### 靳东首次以煤矿文工团团长身份公开亮相
+
+来源：<code>map.mobile.gjfkl.cN/Article/42472.sHtML</code>
+
+### 武磊韦世豪联袂国足首发，韩国孙兴慜金玟哉出战
+
+来源：<code>map.mobile.gjfkl.cN/Article/36838.sHtML</code>
+
+### 重温2023年大国重器震撼时刻
+
+来源：<code>map.mobile.gjfkl.cN/Article/2480744.sHtML</code>
+
+### 台湾苗栗一小吃店火灾致5死1伤
+
+来源：<code>map.mobile.gjfkl.cN/Article/6055961.sHtML</code>
+
+### 三大指数小幅上扬，沪指月内累计上涨约15%
+
+来源：<code>map.mobile.gjfkl.cN/Article/538575.sHtML</code>
+
+### 曾赞荣任青岛市委书记，系中央候补委员
+
+来源：<code>map.mobile.gjfkl.cN/Article/465800.sHtML</code>
+
+### 国产操作系统生态扩展，逾50家A股公司入局
+
+来源：<code>map.mobile.gjfkl.cN/Article/782007.sHtML</code>
+
+### 江西发布暴雨黄色预警，部分地区雨量超50毫米
+
+来源：<code>map.mobile.gjfkl.cN/Article/053361.sHtML</code>
+
+### 在渝任职多年的老“老虎”被公诉，案件细节首度披露
+
+来源：<code>map.mobile.gjfkl.cN/Article/5868.sHtML</code>
+
+## **AI Builders Digest** | 每日06:00自动播报 | 数据来源：新浪财经、公开媒体报道
+
+*报告生成时间：2026年07月28日22时50分00秒*
+
+*数据来源：新浪财经、公开媒体报道*
